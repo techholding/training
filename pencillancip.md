@@ -1,1 +1,1 @@
-belajar
+belajar mengenal hidup
